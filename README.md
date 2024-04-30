@@ -6,4 +6,5 @@ Boas vindas ao meu perfil pessoal! ❤️
 - Estou me desenvolvendo no site de programação JavaScript
 - Sou estudante📚
 
-![](https://tenor.com/pt-BR/view/dragon-ball-z-goku-)
+![]![image](https://github.com/Beatriz011/Beatriz0111/assets/168298720/faa2466d-a6d4-4f06-8bb5-c1b46b934546)
+
